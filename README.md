@@ -7,4 +7,4 @@
 
 [![kartinka](https://kot-pes.com/wp-content/uploads/2016/09/image6-3.jpeg)](https://www.youtube.com/watch?v=zghOwqt4v3c)
 
-Песня норм?
+Всё будет хорошо! :smiley:
