@@ -5,5 +5,6 @@
 * [ ] Купили хлеба
 * [x] Сделать дз
 
-[![kartinka](https://img.freepik.com/free-photo/blue-sky-with-clouds_1127-282.jpg)](https://www.youtube.com/watch?v=EqEMunm4zmA)
+[![kartinka](https://kot-pes.com/wp-content/uploads/2016/09/image6-3.jpeg)](https://www.youtube.com/watch?v=zghOwqt4v3c)
 
+Песня норм?
